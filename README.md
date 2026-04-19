@@ -1,4 +1,4 @@
-# 🚀 Furlogic
+# 🚀 Furlogic : GhiC1NG1My8Z4bh4aqozPPxBupxWZg4obM7hvnxvpump
 
 **Furlogic delivers intelligent solutions where data, logic, and innovation work in perfect sync.**
 
